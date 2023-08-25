@@ -1,4 +1,4 @@
-### Welcome to my very professional looking profile
+### Welcome to my incredibly professional ~~and empty~~ looking profile
 
 | ![1](https://media.discordapp.net/attachments/398424784121364492/1144466264039891026/image2.gif) | ![2](https://media.discordapp.net/attachments/398424784121364492/1144479027722199190/ezgif.com-resize.gif) | ![3](https://cdn.discordapp.com/attachments/398424784121364492/1144466263133921311/image0.gif) |
 | --- | --- | --- |
